@@ -1,0 +1,1 @@
+https://verimli.novarge.tr/
